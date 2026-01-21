@@ -1,2 +1,0 @@
-# estudiandoando
-pagina1
